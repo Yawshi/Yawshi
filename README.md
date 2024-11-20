@@ -1,4 +1,4 @@
-Yawshi (they/he) 
+Yawshi (they/them) 
 
 just a silly squid kid writing some code 🦑
 
